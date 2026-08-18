@@ -5,13 +5,14 @@
 ![](https://komarev.com/ghpvc/?username=bloodbatheds&color=ffffff&label=holy)
 
 
-$\color{#000000}{\text{Have You Seen My}}$ $\color{#FF0000}{\text{dear}}$ $\color{#000000}{\text{Friends?}}$ 
-<img width="720" height="709" alt="8029" src="https://github.com/user-attachments/assets/41e6f17c-5858-4607-8cdf-80ef9ce8d01b" />
+$\color{#000000}{\text{Consentes Dii Juno Jupiter Minerva Apollo Mars Ceres,}}$ 
 
+$\color{#FF0000}{\text{Mercurius Diana Bacchus Vulcanus Pluto Vesta Venus}}$ 
+  
+<img width="736" height="717" alt="8620" src="https://github.com/user-attachments/assets/488b6fbe-ab81-4ded-95cb-dee5042cc142" />
 
-  $\color{#00000}{\text{I'll}}$
-$\color{#FF0000}{\text{stalk}}$ $\color{#000000}{\text{ur socials till my eyes are}}$
-$\color{#FF0000}{\text{numb!}}$ 
+sorry guys all 4 of them are mixed to be ME!
+ 
 
   
 
