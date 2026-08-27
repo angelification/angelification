@@ -18,5 +18,5 @@ WHEN HE LOOKS SO CHOPPED IN THE PAST BUT NOW
 
 <div align ="center">
 
-##### Kyutests: [Samu](https://github.com/nnagito) ♡ [Dorian](https://github.com/lierzxkichi) ♡ [Kem](https://github.com/kem-k3m) 
+##### Kyutests: [Samu](https://github.com/nnagito) ♡ [Dorian](https://github.com/lierzxkichi) ♡ [Kem](https://github.com/k3m-kem) 
 
