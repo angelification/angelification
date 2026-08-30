@@ -13,10 +13,12 @@
 
 <img width="89" height="90" alt="10361" src="https://github.com/user-attachments/assets/8af632d3-b99d-43cd-ad57-c74d2bfc9a3f" />
 
-${\textsf{\color{#B09E71}𝓑𝔯𝔦}}$‎ ${\textsf{\color{#BCB880}ᵒʳ}}$
-${\textsf{\color{#703E5B}ℜ𝒾ℯ𝓁}}$‎
+${\textsf{\color{#B09E71}𝓚𝓪𝔃𝓾𝓽𝓸𝓻𝓪}}$‎ ${\textsf{\color{#BCB880}𝔜𝓾𝓶𝓮𝓴𝓲𝓷}}$
 
-${\textsf{\color{#A24462}𝒞𝔥𝔦𝔫𝔢𝔰𝔢}}$‎‎ ${\textsf{\color{#A78E68}𓏼 ℱ𝔦𝔩𝔦𝔭𝔦𝔫𝔬}}$
+
+${\textsf{\color{#703E5B}﹌﹌﹌﹌﹌﹌﹌﹌}}$‎
+
+${\textsf{\color{#A24462}𝔖𝓮𝓵𝓮𝓬𝓽𝓲𝓿𝓮}}$‎‎ ${\textsf{\color{#A78E68}𓏼 𝔜𝓾𝓶𝓮}}$
      <br>
  ‎  ‎ ‎  ‎   ‎ <details>
   <summary> ⠀  ${\textsf{\color{#703E5B}𝔇𝔢𝔞𝔯𝔢𝔰𝔱𝔰}}$ </summary> 
