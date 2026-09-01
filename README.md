@@ -25,7 +25,7 @@ ${\textsf{\color{#A24462}𝔖𝓮𝓵𝓮𝓬𝓽𝓲𝓿𝓮}}$‎‎ ${\textsf
   
   [𝔖𝔞𝔪𝔲𝔢𝔩](https://github.com/nnagito) [𝔇𝔬𝔯𝔦𝔞𝔫](https://github.com/lierzxkichi)
   [𝔎𝔢𝔪](https://github.com/k3m-kem) 
-  [𝔈𝔯𝔢𝔫](https://github.com/devilhunting) [ℭ𝔬𝔫𝔯𝔞𝔢](https://github.com/THEFA1THFUL) [ℜ𝔢𝔦](https://github.com/reiningcloud)
+  
 </details>
 <details>
   <summary> ⠀  ${\textsf{\color{#BCB880}𝔈𝔵𝔱𝔢𝔫𝔡𝔢𝔡}}$ </summary> 
